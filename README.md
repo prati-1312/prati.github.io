@@ -4,5 +4,5 @@
 - ✍️👩🏻‍💻 Content Creation & Digital Marketing.
 - 🌏  Website Building.
 - 🌱  Horticulture & Agriculture expert.
-- 🔗[LinkedIn](www.linkedin.com/in/pratikshya-sahoo-658685347)
+- 🔗 [LinkedIn]:(www.linkedin.com/in/pratikshya-sahoo-658685347)
 - 📧Contact me : prati225@gmail.com
